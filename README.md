@@ -6,3 +6,16 @@ Greetings ! My name is@Serdagonn
 - 📫 How to reach me :
     @serdagonn_ on instagram
     Serdagonn on discord, telegram, and Steam !!
+
+
+
+
+
+
+
+
+
+
+
+  
+I LOVE DRAGONS HAHAHAH
